@@ -1,1 +1,1 @@
-Мой первы коментарий для Summer Practic
+Мой первый коментарий для Summer Practic
